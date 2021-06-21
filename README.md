@@ -1,4 +1,4 @@
-- 👋 # Hi, I’m Jenny
+- 👋  Hi, I’m _Jenny_
 - 👀 I’m interested in *dancing*
 - 🌱 I’m currently learning 
 - * Japanese
