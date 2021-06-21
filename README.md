@@ -1,6 +1,6 @@
-- 👋## Hi, I’m Jenny
+- 👋##Hi, I’m Jenny
 - 👀 I’m interested in *dancing*
-- 🌱 I’m currently learning *Japanese *Thai language
+- 🌱 I’m currently learning * Japanese * Thai language
 - 💞️ I’m looking to collaborate on ...**going to the moon**
 - 📫 How to reach me ...**call me maybe**
 
